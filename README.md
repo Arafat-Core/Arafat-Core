@@ -31,7 +31,7 @@
 ## 🔥 Profile Views
 
  <p align="center">
-  <img width="400px" src="https://count.getloli.com/get/@nazrul4x?theme=rule34"></img>
+  <img width="400px" src="https://count.getloli.com/get/@arafat-core?theme=rule34"></img>
 </p>
 
 #
